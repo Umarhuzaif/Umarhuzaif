@@ -108,11 +108,9 @@
 
 \## 📫 Connect with Me
 
-\- 📧 Email: \[your-email@example.com]  
+\- 📧 Email: \[your-vumarhuzaif@gmail.com]  
 
-\- 💼 LinkedIn: \[linkedin.com/in/umarhuzaif](#)  
-
-\- 🌐 Portfolio: (coming soon)
+\- 💼 LinkedIn: \[https://www.linkedin.com/in/umar-huzaif-kolhar-516555228/](#)  
 
 
 
